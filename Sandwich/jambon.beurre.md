@@ -1,0 +1,4 @@
+Pain
+Beurre
+Salade
+Emmental
